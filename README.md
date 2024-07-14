@@ -7,7 +7,7 @@
 - **屈浩楠**——研究报告  
 - **刑乂烺**——网页设计  
 - **闫恩培**——程序设计
-**[AI风暴组的Vlog](http://xhslink.com/gLw2qP)**  
+# **[AI风暴组的Vlog](http://xhslink.com/gLw2qP)**  
 ![合照15](images/15.jpg)  
 ## 笔记  
   
